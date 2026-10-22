@@ -1,2 +1,0 @@
-# phool_walle_bhaiya_privacy_policy
-privacy policy
